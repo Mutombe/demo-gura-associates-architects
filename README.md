@@ -1,1 +1,0 @@
-# demo-gura-associates-architects
